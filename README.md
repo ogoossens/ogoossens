@@ -1,1 +1,1 @@
-📫 How to reach me at oliver.goossens@gmail.com
+📫 Reach me at oliver.goossens@gmail.com
